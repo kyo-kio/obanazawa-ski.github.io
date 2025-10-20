@@ -1,0 +1,1 @@
+# obanazawa-ski.github.io
